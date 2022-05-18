@@ -1,2 +1,2 @@
-20223143 조원영
+20223143 ChoW Wonyoung
 Kookmin Univ. SW
