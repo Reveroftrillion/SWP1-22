@@ -1,2 +1,2 @@
-20223143 ChoW Wonyoung
+20223143 Cho Wonyoung
 Kookmin Univ. SW
